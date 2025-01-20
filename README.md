@@ -1,2 +1,4 @@
 # Technology_Information_System
-First-year TIS assignments at UTM
+a field that studies how to use technology to analyze and manage information system
+
+My first-year TIS assignments at UTM
