@@ -1,2 +1,2 @@
 # Technology_Information_System
-First year TIS assignments at UTM
+First-year TIS assignments at UTM
