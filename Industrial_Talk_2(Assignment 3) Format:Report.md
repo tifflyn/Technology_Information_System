@@ -8,5 +8,6 @@ skills are essential, but gaining a growth mindset is also important. When there
 stalling, only then can we improve no matter when and where we are. We cannot succeed in the long run if we only acquire essential
 skill sets or growth mindsets. Therefore, I will improve both essential
 skill sets and build a growth mindset to achieve my goals in life.
-The link below shows the full report.
-https://sg.docworkspace.com/d/sILzv2-DYAY-Ug7wG
+
+The following link shows the full report: 
+[Report Industrial Talk 2](https://sg.docworkspace.com/d/sILzv2-DYAY-Ug7wG)
